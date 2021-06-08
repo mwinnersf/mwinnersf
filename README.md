@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mwinnersf
+- 👋 Hi, I’m @mwinnersf Michael Winner 
 - 👀 I’m interested in marketing, marketing sciences, data, technology, and philanthropy 
 - 🌱 I’m currently learning UNICEF 
 - 💞️ I’m looking to collaborate on Marketing Strategy & Marketing Sciences 
